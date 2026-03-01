@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LORA030110HGTPMNA4
+LORA030110HGTPMNA4
